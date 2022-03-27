@@ -1,5 +1,4 @@
 - 👋 Hola soy @jrp4ris
-- 👀 Hacker desde niño
 - 🌱 Siempre aprendiendo
-- :) Blogs y cosas curiosas
+- 👀 Blogs y cosas curiosas
 - 📫 Contacto proximamente
