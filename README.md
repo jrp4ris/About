@@ -1,0 +1,4 @@
+- 👋 Hola soy @jrp4ris
+- 👀 Hacker desde niño
+- 🌱 Siempre aprendiendo
+- 📫 Contacto proximamente
